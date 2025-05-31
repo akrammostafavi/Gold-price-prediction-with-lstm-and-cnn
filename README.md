@@ -40,5 +40,5 @@ I’m open to research collaborations, mentorship opportunities, or data science
 
 ## 📬 Contact
 
-📧 [Your Email]  
+📧 [aki.mostafavi@yahoo.com]  
 🔗 [LinkedIn Profile] (optional)  
