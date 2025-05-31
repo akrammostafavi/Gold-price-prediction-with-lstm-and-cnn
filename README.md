@@ -41,4 +41,4 @@ I’m open to research collaborations, mentorship opportunities, or data science
 ## 📬 Contact
 
 📧 [aki.mostafavi@yahoo.com]  
-🔗 [LinkedIn Profile] (optional)  
+🔗 https://www.linkedin.com/in/akram-mostafavi-ba9895368/?lipi=urn%3Ali%3Apage%3Ap_mwlite_my_network%3B0YPF%2B4%2FMR%2FiIZe3mDBIOTQ%3D%3D
